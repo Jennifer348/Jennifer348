@@ -1,5 +1,5 @@
-- 👋 Hi, I’m Jennifer Qi, a incoming undergrad at Duke University.
-- 👀 I’m interested in languages, AI, biology and arts.
+- 👋 Hi, I’m Jennifer Qi, an incoming undergrad at Duke University.
+- 👀 I’m interested in languages, AI, arts and international studies.
 - 🌱 I’m currently an intern at Apple doing data analysis and directing commercial shoots.
 - 💞️ I’m looking to collaborate on filmmaking for now. I'm also looking to pursue on public policy and education in the future.
 - 📫 How to reach me: Jennifer172624@gmail.com
