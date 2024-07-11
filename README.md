@@ -1,7 +1,7 @@
-- 👋 Hi, I’m Jennifer Qi, a incoming freshmen at Duke University.
-- 👀 I’m a language & AI enthusiast
-- 🌱 I’m currently a intern at Apple doing data analysis and commercial shoots.
-- 💞️ I’m looking to collaborate on I'm also looking to pursue on public policy and education.
+- 👋 Hi, I’m Jennifer Qi, a incoming undergrad at Duke University.
+- 👀 I’m interested in languages, AI, biology and arts.
+- 🌱 I’m currently an intern at Apple doing data analysis and directing commercial shoots.
+- 💞️ I’m looking to collaborate on filmmaking for now. I'm also looking to pursue on public policy and education in the future.
 - 📫 How to reach me: Jennifer172624@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: Come know me! I'm a Broadway fun, a Spanish & French beginner, a Chinese dancer for 14 years, a amateur photographer, a foodie and a horse person (don't eat horses).
