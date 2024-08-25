@@ -1,10 +1,10 @@
 - 👋 Hi, I’m Jennifer Qi, an incoming undergrad at Duke University.
-- 👀 I’m interested in languages, AI, arts and international studies.
+- 👀 I’m interested in languages, AI, neuroscience and arts.
 - 🌱 I’m currently an intern at Apple doing data analysis and directing commercial shoots.
-- 💞️ I’m looking to collaborate on filmmaking for now. I'm also looking to pursue on public policy and education in the future.
+- 💞️ I’m open to work opportunities as a consaltant.
 - 📫 How to reach me: Jennifer172624@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: Come know me! I'm a Broadway fun, a Spanish & French beginner, a Chinese dancer for 14 years, a amateur photographer, a foodie and a horse person (don't eat horses).
+- ⚡ Fun fact: Come know me! I'm a Broadway fun, a Spanish & French beginner, a Chinese dancer for 14 years, a amateur photographer, a foodie and a horse person. DM me anytime!
 
 <!---
 Jennifer348/Jennifer348 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
